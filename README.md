@@ -12,13 +12,13 @@ PLS SUBCRIBE TO ME AT YT @Grays0n-dev!                 ![68747470733a2f2f6769746
 
 
 
+
 ------------------------------------------------------------------------------------------------------------------
   
 YOOOOO
  THIS IS NOT THE END
 
- :insert gifs and svgs: 
-
+ 
  ![giphy](https://github.com/user-attachments/assets/443b9ba7-67d8-45d4-93c6-4add6cf78a4e)
 
  
