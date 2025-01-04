@@ -1,7 +1,8 @@
 YOOOOO
 
 I make software that is held together by glue, hopes, and dreams. Oh and also I post youtube videos
-You can contact me in the basement or at graysonselk116@gmail.com
+You can contact me in the basement or at graysondevsigma942@gmail.com ![subscribe-click-subscribe](https://github.com/user-attachments/assets/4f7e12f9-4a40-4df2-b0f8-ce26952b8eca)
+
 
 ----------------------------------------------------------------------------------------------------------------
 
